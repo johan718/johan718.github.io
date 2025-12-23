@@ -1,4 +1,5 @@
-Johan Yege - Software Engineer | Gameplay Engineer
+## Johan Yege
+Software Engineer / Gameplay Engineer
 
 ## Personal Links
 
