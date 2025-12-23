@@ -1,4 +1,4 @@
-## Thank you for visiting my page
+## Johan Yege
 
 - ArtStation: [https://artstation.com/johan12](https://artstation.com/johan12)
 - GitHub: [https://github.com/johan718](https://github.com/johan718)
